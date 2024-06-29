@@ -1,4 +1,4 @@
-# Privacy Policy for [Your Discord Bot Name]
+# Privacy Policy for Aphrodisia
 ### Effective Date: 29/06/2024
 ---
 
